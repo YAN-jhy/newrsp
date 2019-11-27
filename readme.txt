@@ -1,2 +1,2 @@
-LOOK ME£¡
+LOOK ME
 Oh My God!
